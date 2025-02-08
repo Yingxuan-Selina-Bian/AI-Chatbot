@@ -1,4 +1,4 @@
-## Business Strategy: Ice Cream Shop in San Francisco Downtown (SOMA/Downtown)
+## Business Strategy: Ice Cream Shop in San Francisco
 
 **Executive Summary:** This strategy outlines the plan to open a successful ice cream shop in the SOMA/Downtown area of San Francisco, leveraging the under-saturation of the market, competitive operational hours, and a focus on high-quality product and customer experience.
 
